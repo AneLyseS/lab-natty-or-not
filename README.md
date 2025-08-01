@@ -22,4 +22,5 @@
 
 ## 🚀 Resultados
 #Criei uma propaganda impactante que une motivação, estética e tecnologia para divulgar o treino natural e o uso consciente de IA.
+# https://drive.google.com/file/d/1NJo-BAJmxB3gOaxugUw_UQ6PKcYED6_f/view?usp=sharing
 
